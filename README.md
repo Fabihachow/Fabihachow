@@ -6,7 +6,7 @@ On my free time I like drawing and painting🖌
 I also love playing video games and board games!🎮🎲  
 Hope you have fun following my journey!💖💖💖
 
-![output-onlinegiftools](https://github.com/user-attachments/assets/e76a513e-387e-46b9-a5bd-df9c8aa1bcbb)
+![Uploading dog-in-car-joy-ride.gif…]()
 
 <!--
 **Fabihachow/Fabihachow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
