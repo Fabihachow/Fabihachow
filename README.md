@@ -5,7 +5,7 @@ A little bit about me:
 On my free time I like drawing and painting🖌  
 I also love playing video games and board games!🎮🎲  
 Hope you have fun following my journey!💖💖💖
-![dog-in-car-joy-ride](https://github.com/user-attachments/assets/be4b94ba-6137-4835-8395-f49b406c2e7e)
+  ![dog-in-car-joy-ride](https://github.com/user-attachments/assets/be4b94ba-6137-4835-8395-f49b406c2e7e)
 
 
 
