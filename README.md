@@ -5,8 +5,8 @@ A little bit about me:
 On my free time I like drawing and painting🖌  
 I also love playing video games and board games!🎮🎲  
 Hope you have fun following my journey!💖💖💖
+![SneakSniff_wide](https://github.com/user-attachments/assets/2df00fc2-6c54-431c-8165-82cd3908f488)
 
-![Uploading dog-in-car-joy-ride.gif…]()
 
 <!--
 **Fabihachow/Fabihachow** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
